@@ -1,4 +1,4 @@
-hi guys! today i encountered another copycat, not that it's new but i decided wth and show y'all to stay away from this little person that likes to steal ideas without asking first! their dc is ".doom"
+hi guys! today i encountered another copycat, not that it's new but i decided wth and show y'all to stay away from this little person that likes to steal ideas without asking first! their dc is "doomdotcom"
 
 ![demo](https://github.com/user-attachments/assets/1312285d-3972-4475-a6d6-ece219ad17f8)
 
